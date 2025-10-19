@@ -3,6 +3,8 @@
 </div>
 <div align="center">
 DANDY !! he / him 
-
+  
 cutie with npd
+
+[CLICK](https://ru.pronouns.page/@dandyIRL)
 </div>
